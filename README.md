@@ -1,0 +1,1 @@
+# Quibhoball-is-a-trademark-of-GGTC-Corporation.-
